@@ -8,7 +8,4 @@ Throughout the book, we will draw on real-world examples of successful leaders a
 
 Whether you're just starting on your leadership journey or looking to take your skills to the next level, this book will provide you with the knowledge and inspiration you need to unlock your full potential as a leader. By tapping into your inner strength and embracing your unique leadership style, you can achieve greater success and make a difference in the world.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
