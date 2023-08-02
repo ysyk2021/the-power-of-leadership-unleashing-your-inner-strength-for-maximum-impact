@@ -1,4 +1,4 @@
-Chapter: Overview of the Book's Contents
+Overview of the Book's Contents
 ========================================
 
 In this chapter, we will provide an overview of the contents of "The Power of Leadership: Unleashing Your Inner Strength for Maximum Impact." This book aims to empower individuals to develop a leadership mindset and leverage it to make a significant impact in their personal and professional lives.

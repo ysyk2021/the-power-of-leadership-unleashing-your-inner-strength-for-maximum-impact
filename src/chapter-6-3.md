@@ -1,4 +1,4 @@
-Chapter: Examples of Effective Communication in Leadership
+Examples of Effective Communication in Leadership
 ==========================================================
 
 In this chapter, we will explore examples of effective communication in leadership and how it can unleash inner strength for maximum impact. Effective communication is a vital skill for leaders as it enables them to inspire, influence, and engage with their teams and stakeholders. Through practical examples and case studies, readers will gain insights into different scenarios where effective communication has played a pivotal role in successful leadership.

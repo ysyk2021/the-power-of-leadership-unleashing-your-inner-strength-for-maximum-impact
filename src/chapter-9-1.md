@@ -1,4 +1,4 @@
-Chapter: Common Obstacles to Effective Leadership
+Common Obstacles to Effective Leadership
 =================================================
 
 Effective leadership is a journey fraught with challenges and obstacles. In this chapter, we will explore some of the common hurdles that leaders encounter and provide strategies for overcoming them to unleash their inner strength and make a maximum impact.

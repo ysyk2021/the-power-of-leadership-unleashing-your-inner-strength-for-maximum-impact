@@ -1,4 +1,4 @@
-Chapter: Techniques for Developing a Leadership Mindset
+Techniques for Developing a Leadership Mindset
 =======================================================
 
 In this chapter, we will explore techniques and strategies for developing a leadership mindset. These practical approaches will empower individuals to cultivate the necessary skills, attitudes, and behaviors to become effective leaders and maximize their impact in personal and professional settings.

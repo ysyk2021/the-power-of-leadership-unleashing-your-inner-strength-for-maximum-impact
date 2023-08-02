@@ -1,4 +1,4 @@
-Chapter: Definition of Emotional Intelligence
+Definition of Emotional Intelligence
 =============================================
 
 In this chapter, we will explore the concept of emotional intelligence (EI) and its significance in effective leadership. Emotional intelligence refers to the ability to recognize, understand, and manage emotions, both in oneself and in others. It plays a crucial role in building strong relationships, making sound decisions, and inspiring others.

@@ -1,4 +1,4 @@
-Chapter: Characteristics of Successful Leaders
+Characteristics of Successful Leaders
 ==============================================
 
 Successful leaders possess a unique set of qualities and characteristics that set them apart. In this chapter, we will explore the key attributes that define exceptional leaders and contribute to their ability to make a maximum impact in their endeavors.

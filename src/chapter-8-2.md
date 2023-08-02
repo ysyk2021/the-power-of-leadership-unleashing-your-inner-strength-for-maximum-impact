@@ -1,4 +1,4 @@
-Chapter: Strategies for Leading Through Change
+Strategies for Leading Through Change
 ==============================================
 
 In this chapter, we will explore essential strategies for leading through change. Change is inevitable in today's fast-paced world, and leaders must effectively navigate and guide their teams through periods of transition. By implementing these strategies, leaders can inspire confidence, foster resilience, and drive successful outcomes during times of change.

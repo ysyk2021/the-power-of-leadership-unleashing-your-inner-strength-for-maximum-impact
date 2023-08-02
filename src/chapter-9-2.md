@@ -1,4 +1,4 @@
-Chapter: Strategies for Overcoming Common Obstacles
+Strategies for Overcoming Common Obstacles
 ===================================================
 
 In this chapter, we will explore effective strategies for overcoming the common obstacles that leaders face in their journey towards making a maximum impact. By implementing these strategies, leaders can unleash their inner strength and navigate through challenges with resilience and success.

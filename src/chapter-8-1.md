@@ -1,4 +1,4 @@
-Chapter: Definition of Change Management
+Definition of Change Management
 ========================================
 
 Change management is a critical aspect of effective leadership, enabling leaders to navigate organizational transitions and drive successful outcomes. This chapter explores the definition of change management, its key principles, and its importance in maximizing leadership impact.

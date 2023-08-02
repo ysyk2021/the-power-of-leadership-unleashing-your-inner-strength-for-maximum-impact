@@ -1,4 +1,4 @@
-Chapter: Techniques for Developing Emotional Intelligence in Leadership
+Techniques for Developing Emotional Intelligence in Leadership
 =======================================================================
 
 In this chapter, we will explore various techniques and strategies that can help leaders develop and enhance their emotional intelligence. Emotional intelligence is a critical aspect of effective leadership as it enables leaders to understand and manage their own emotions and those of others, fostering stronger relationships and driving positive outcomes.
