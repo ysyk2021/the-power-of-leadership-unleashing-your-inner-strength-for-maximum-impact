@@ -1,5 +1,3 @@
-Definition of Leadership
-=================================
 
 Leadership is a multifaceted concept that encompasses various qualities, skills, and behaviors. In this chapter, we will explore the definition of leadership and understand the fundamental aspects that make a great leader. From inspiring others to driving change, leadership is the force that unleashes one's inner strength for maximum impact.
 

@@ -1,5 +1,3 @@
-Importance of Effective Communication in Leadership
-============================================================================================
 
 Effective communication is one of the most essential skills that leaders must possess. Communication is the cornerstone of all human relationships, and it plays a critical role in leadership. In this chapter, we will discuss the importance of effective communication in leadership.
 

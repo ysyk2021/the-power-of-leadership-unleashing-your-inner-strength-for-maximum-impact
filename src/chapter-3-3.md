@@ -1,5 +1,3 @@
-Case Studies on Individuals Who Developed a Leadership Mindset
-=======================================================================
 
 In this chapter, we will explore case studies of individuals who developed a leadership mindset and leveraged it to achieve remarkable success in their personal and professional lives. These stories showcase the transformative power of adopting a leadership mindset and provide valuable insights into how anyone can cultivate their leadership abilities.
 

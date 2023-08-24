@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles to Leadership
-=============================================
 
 Effective leadership requires overcoming various obstacles that can hinder progress. In this chapter, we discuss common obstacles to effective leadership, strategies for overcoming these obstacles, and tips for maintaining a strong leadership mindset.
 

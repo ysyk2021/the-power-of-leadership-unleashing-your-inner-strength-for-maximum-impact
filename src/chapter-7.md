@@ -1,5 +1,3 @@
-Chapter 7: Decision Making and Problem Solving in Leadership
-============================================================
 
 Effective decision making and problem solving are essential components of successful leadership. By developing the skills needed to make sound decisions and solve complex problems, leaders can achieve their goals and maximize their impact.
 

@@ -1,5 +1,3 @@
-Chapter 4: Building Strong Teams
-================================
 
 In this chapter, we will explore the importance of building strong teams as a leader, and strategies for effective team building. We will also provide tips for managing and motivating teams.
 

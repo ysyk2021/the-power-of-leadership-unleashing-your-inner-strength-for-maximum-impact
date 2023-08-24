@@ -1,4 +1,3 @@
-# Introduction
 
 Leadership is a crucial component of personal and professional success. Whether you're leading a team at work, volunteering in your community, or simply striving to be the best version of yourself, strong leadership skills are essential.
 

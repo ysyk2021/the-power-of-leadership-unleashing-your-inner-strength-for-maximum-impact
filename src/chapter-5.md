@@ -1,5 +1,3 @@
-Chapter 5: Leading with Emotional Intelligence
-==============================================
 
 In this chapter, we will explore the importance of emotional intelligence in leadership and techniques for developing emotional intelligence to achieve maximum impact.
 

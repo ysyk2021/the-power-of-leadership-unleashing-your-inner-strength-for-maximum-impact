@@ -1,5 +1,3 @@
-Benefits of Leading with Emotional Intelligence
-========================================================
 
 In this chapter, we will explore the numerous benefits of leading with emotional intelligence. Emotional intelligence is a critical skill for leaders as it enables them to understand and manage their own emotions and those of others. By harnessing emotional intelligence, leaders can enhance their effectiveness, build stronger relationships, and drive positive outcomes.
 

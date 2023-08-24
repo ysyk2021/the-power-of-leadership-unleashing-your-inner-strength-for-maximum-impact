@@ -1,5 +1,3 @@
-Chapter 6: Communication and Leadership
-=======================================
 
 Effective communication is an essential component of successful leadership. In this chapter, we will explore the importance of effective communication in leadership, strategies for improving communication skills, and examples of effective communication in leadership.
 

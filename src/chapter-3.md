@@ -1,5 +1,3 @@
-Chapter 3: Developing a Leadership Mindset
-==========================================
 
 Developing a leadership mindset is essential for unleashing your inner strength and achieving maximum impact as a leader. By cultivating the characteristics of successful leaders and using specific techniques, you can develop the mindset needed to lead with confidence and effectiveness.
 

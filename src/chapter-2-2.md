@@ -1,5 +1,3 @@
-Common Misconceptions About Leadership
-===============================================
 
 In this chapter, we will address and debunk common misconceptions surrounding the concept of leadership. It is important to clarify these misunderstandings as they can hinder one's understanding and development as a leader.
 

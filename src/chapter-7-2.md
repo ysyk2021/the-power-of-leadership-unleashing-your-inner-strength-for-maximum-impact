@@ -1,5 +1,3 @@
-Techniques for Effective Decision Making and Problem Solving
-=====================================================================
 
 In this chapter, we will explore various techniques for effective decision making and problem solving. Leaders are often faced with complex challenges that require thoughtful analysis and innovative approaches. By utilizing these techniques, leaders can improve their decision-making skills and find creative solutions to problems.
 

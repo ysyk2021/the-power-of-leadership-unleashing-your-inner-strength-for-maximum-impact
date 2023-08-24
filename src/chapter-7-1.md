@@ -1,5 +1,3 @@
-Importance of Decision Making and Problem Solving in Leadership
-========================================================================
 
 In this chapter, we will explore the crucial role of decision making and problem solving in effective leadership. Leaders are often faced with complex challenges that require them to make critical decisions and find innovative solutions. Understanding the importance of these skills is essential for leaders seeking to maximize their impact and drive success.
 

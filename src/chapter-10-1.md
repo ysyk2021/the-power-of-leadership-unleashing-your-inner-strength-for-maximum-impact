@@ -1,5 +1,3 @@
-Summary of Key Points
-=============================================
 
 In this book, we have explored the power of leadership and how to unleash our inner strength for maximum impact. Here's a summary of the key points:
 

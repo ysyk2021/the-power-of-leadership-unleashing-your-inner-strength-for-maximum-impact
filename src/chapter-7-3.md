@@ -1,5 +1,3 @@
-Case Studies on Effective Decision Making and Problem Solving in Leadership
-====================================================================================
 
 In this chapter, we will examine case studies that highlight effective decision making and problem solving in leadership. Real-world examples provide valuable insights into how leaders can navigate complex challenges, make sound decisions, and find innovative solutions. Through these case studies, readers can learn from the experiences of successful leaders and apply their strategies to their own leadership journeys.
 

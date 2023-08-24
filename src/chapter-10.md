@@ -1,5 +1,3 @@
-Chapter 10: Conclusion
-======================
 
 In this book, we explored the power of leadership and how it can be used to unleash your inner strength for maximum impact. We discussed various aspects of leadership, including self-awareness, goal-setting, decision-making, emotional intelligence, communication skills, ongoing learning and development, and overcoming obstacles.
 

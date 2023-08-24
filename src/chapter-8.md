@@ -1,5 +1,3 @@
-Chapter 8: Leading Through Change
-=================================
 
 In this chapter, we will explore the importance of change management and strategies for leading through change to achieve maximum impact.
 
