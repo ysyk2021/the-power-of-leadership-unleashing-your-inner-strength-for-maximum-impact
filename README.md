@@ -1,3 +1,6 @@
+# The Power of Leadership: Unleashing Your Inner Strength for Maximum Impact
+
+Book Link: [https://zhengpublishing.com/the-power-of-leadership-unleashing-your-inner-strength-for-maximum-impact/](https://zhengpublishing.com/the-power-of-leadership-unleashing-your-inner-strength-for-maximum-impact/)
 
 Leadership is a crucial component of personal and professional success. Whether you're leading a team at work, volunteering in your community, or simply striving to be the best version of yourself, strong leadership skills are essential.
 
